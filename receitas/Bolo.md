@@ -1,4 +1,4 @@
-# **Bolo de Chocolate Vegano** :cake
+# **Bolo de Chocolate Vegano** 
 
 ### Ingredientes da Massa: 
 
